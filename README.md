@@ -1,1 +1,1 @@
-My first readme
+Mankind is condemned to be free
